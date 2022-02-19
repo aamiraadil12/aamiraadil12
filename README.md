@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aamiraadil12
+- 👀 I’m interested in getting coding teacher
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on teaching coding
+- 📫 How to reach me madarasa ishaatul islam, Delhi
